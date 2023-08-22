@@ -1,4 +1,6 @@
-#Javad Beigi
+JAVAD BEIGI
+
+# How to reach me : javad.beigi97@gmail.com
 
 
 ### 🖥 Skills
